@@ -9,7 +9,7 @@
  <div align="center">        
 ♡
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Estonia&pause=1000&color=BA0000&width=435&lines=i+love+you%2C+in+every+universe" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Estonia&size=50&pause=1000&color=B50000&width=435&lines=i+love+you%2C+in+every+universe" alt="Typing SVG" /></a>
 
 <a href="https://miwacat.atabook.org" target="_blank">ata<3
 
