@@ -19,5 +19,7 @@
 
 
 
-
+I'm currently keeping my circle closed and not really looking to meet new people.
+if you genuinely want to be friends, feel free to send me a friend request through whisper or my ata, since I have in-game friend requests disabled.
+please don't take it personally if I don't respond right away ♡
   
